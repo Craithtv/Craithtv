@@ -1,5 +1,5 @@
 ### Ryan Leonard
- > Ryan Leonard is a Software Developer Intern at 365 Reatail Markers, which is headquartered in Troy.
+ > Ryan Leonard is a Software Developer Intern at 365 Retail Markers, which is headquartered in Troy.
 
 
 ### About me
